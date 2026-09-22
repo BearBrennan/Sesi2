@@ -1,1 +1,1 @@
-hidup blonde
+Aku sangat suka sama blonde 
